@@ -10,7 +10,7 @@ As the movie progresses, we see Bower's life crumbling before his eyes. His neph
 
 # Act 2:
 
-Bower's resilience is put to the test when his entire family is killed by the cartel. He is forced to rebuild his life from scratch and eventually meets and marries a new wife. However, the marriage doesn't work out, and they divorce, snuffing out the little light at the end of the tunnel.                                                                                                                                                                                                                                                                                                                                                                                                   # Act 3:
+Bower's resilience is put to the test when his entire family is killed by the cartel. He is forced to rebuild his life from scratch and eventually meets and marries a new wife. However, the marriage doesn't work out, and they divorce, snuffing out the little light at the end of the tunnel.                                                                                                                                                                                                                         # Act 3:
 
 In the final act of the movie, Bower becomes a recluse, retreating to his own domain, a secluded cabin in the woods. There, he becomes obsessed with the idea of revenge against the cartel that destroyed his family. He spends years plotting and preparing for his revenge, becoming more and more isolated from the outside world.
 
