@@ -1,4 +1,4 @@
-### Title: Bower's Domain
+## Title: Bower's Domain
 
 # Opening Scene:
 
